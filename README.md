@@ -8,3 +8,10 @@
 
 ## STL
 
+## 作業
+
+![image](images/DSC03208.JPG)
+
+![image](images/DSC03219.JPG)
+
+![image](images/keyball_fin.JPG)
